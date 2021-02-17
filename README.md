@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @navishaharriparsadhsookoo
-- 👀 I’m interested in becoming top notch female sofwatre enginner.
+- 👀 I’m interested in becoming a sofwatre enginner, and also educating myself about cybersecurity.
 - 🌱 I’m currently learning Information Technology and I am hoping to study Computer Science in the fututre.
 - 💞️ I’m looking to collaborate on upcoming projects.
 - 📫 How to reach me navishasookoo@gmail.com
